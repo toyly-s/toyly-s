@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @toyly_s
 - 👀 I’m interested in violin
-- 🌱 I’m currently learning Anatomy and Biology
+- 🌱 I’m currently learning Anatomy
 - 📫 How to reach me Telegram, Instagram, WhatsApp, Imo
 - ⚡ Fun fact: I love sleeping.
 
